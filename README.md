@@ -1,0 +1,1 @@
+# 2022-yilgacha-qancha-vaqt-qoldi
